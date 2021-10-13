@@ -1,5 +1,5 @@
 - 👋 Hi, I’m andrew
-- 👀 I’m interested in fucking bitches
+- 👀 I’m interested in fucking bitches (male dogs)
 - 🌱 I’m currently learning some dumb shit
 - 💞️ I’m looking to collaborate on the hub
 - 📫 How to reach me: jus hit ma line
